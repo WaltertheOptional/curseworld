@@ -1,0 +1,1 @@
+A book most holy used by the followers of [[The Church of Light]] to spread word of the [[The God of light]], there are many different versions of it throughout [[Curse World]], the one used in the [[Dawnland]] region is called the renewed version.

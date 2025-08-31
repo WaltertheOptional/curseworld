@@ -4,4 +4,4 @@ There are three beast sub races.
 
 - [[The Wolf Beast]]
 - [[The Fox Beast]]
-- [[The Frog Beast]]
+- [[The Toad Beast]]

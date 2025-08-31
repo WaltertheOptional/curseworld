@@ -1,0 +1,1 @@
+[[The Age of ash]] begins when the calamity happened an unknown time ago and lasts all the way up until the first duke of the region [[Duke Grigori Dragunov]] doesn't establish the [[Dawnland]] region and starts ruling over it

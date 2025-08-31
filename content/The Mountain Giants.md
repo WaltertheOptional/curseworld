@@ -1,2 +1,2 @@
 
-Created from the earth itself they towered over all the mountains and lands of the world, they were also knows to be masters of fire and the forge. By the time [[The God King]] was created the Giants work had been completed and they were given now forms, their bodies were compressed and they became short, stout and strong, these creatures would eventually come to be known as [[Dwarfs]].
+Created from the earth itself they towered over all the mountains and lands of the world, they were also knows to be masters of fire and the forge. By the time [[The God King]] was created the Giants work had been completed and they were given new forms, their bodies were compressed and they became short, stout and strong, these creatures would eventually come to be known as [[Dwarfs]].
