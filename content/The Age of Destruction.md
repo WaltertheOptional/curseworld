@@ -1,0 +1,6 @@
+
+
+> And so The End began …
+> [[The First shadow]] would see everything that [[The God King]] and [[The God of light]] and wish to destroy it, so it would enlist 3 of its [[Aspects]], [[Anathema]] the one who brings pain, [[Ruinis]] the unmaker, and an aspect simply known as [[The Harbinger]]. These aspects would slowly corrupt The Kings court, and create [[Apostles]] that would lead the corrupted, The Shadow would create [[The Silver Knives]] weapons with the power to kill The King. And one day the noble men of the court would all be killed by the corrupted nobles, and [[The Three Apostles]] would restrain and then kill The King, starting [[The Age of Destruction]] and ending [[The Age of The God King]].
+> What would follow is a long and bloody conflict in witch entire lands were destroyed, entire cities covered in blood and mounds of bodies that would stretch as far as the eye could see. They would fight and fight, a war without end and witch would create rivers of blood...
+> *A summary taken from [[The Two Churches|The Gospel]] renewed 255 Old Rights version*   

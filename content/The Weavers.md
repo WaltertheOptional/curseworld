@@ -1,0 +1,2 @@
+
+Once magical beings that existed in the veil between magic and the physical, once [[The God King]] was created they were forced to exist fully in the physical world witch took away their immortality and made them have weak bodies, over time the weavers became [[The Elves]].

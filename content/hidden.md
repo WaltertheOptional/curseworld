@@ -1,0 +1,3 @@
+- *a small piece of hidden paper slipped between two pages*
+
+To write against the church is considered wrongful and is a sure way to get [[The Compendium of the Dawnland region]] destroyed so however much it pains me I must stick to their beliefs, or risk all my books being burned. They may speak of unity and their *ways* but they appear to not be able to agree on anything leading to there being many different interpretations of [[The gospel]], and so i see in my lifetime the differences have become to great and the church has started splitting up. I can not put the words here but go and find the section of The Two churches it is hidden somewhere in the compendium. I hope you may find it and not be the cause of Destruction of this book.

@@ -1,0 +1,2 @@
+
+Fox beasts were created by [[The God King]] to be his ever watchful eyes and ears they know how to hide, trick and when a certain person needs to disappear. They are often seen as dangerous assassins and as thieves and liars. In reality as long as you’re a morally standard person you have nothing to fear, those that wish to harm good people and destroy order are dealt without anyone noticing. They get enjoyment from tormenting any evil people. Their height is between 160 and 170 cm.

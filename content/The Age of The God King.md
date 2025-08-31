@@ -1,0 +1,4 @@
+
+>  And so The Crown was created...
+> Under [[The God King]] a prosperous age began, for all would bow to him and all would follow his every command, in this age art, writing, culture and many other things would advance rapidly. Colossal monuments, towers, buildings and castles would be built. And at the center of everything laid the capital, a city of pure white marble, that stretched as far as the eye could see all around with buildings so tall that they would touch the sky, and The Kings castle at its center a building so magnificent that none could describe its white marble walls with details of gold and silver. [[The White City]] they called it, a center of everything and for everything. To keep His order, The King created [[The Beast]] races, to fill the roles of his kingdom. And so the kingdom prospered.
+> *A summary taken from [[The gospel]] renewed 255 Old Rights version*  

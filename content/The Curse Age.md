@@ -1,0 +1,6 @@
+
+
+> And so [[The Curse Age]] begins …
+> With the death of [[The God King]], [[The God of light]] was furious and He would see that all those responsible would suffer for the crime of killing divinity. For Its crime [[The First shadow]] was wrapped in chains and cast into the deepest abyss never to be seen again. [[The Three Apostles]], were each sealed in a different way. [[Anathema]] was sealed in the deepest dungeon ever to exist and sealed in a tomb so that it may never harm anything ever again. [[Ruinis]] was cast into an infinite void so that it may never have the power to destroy anything. And [[The Harbinger]] was trapped within an infinite hallway, never to whisper its evil to anyone but itself it still wanders those halls forever walking towards an exit just out of reach.
+> As for all the mortals of the world who failed their king, and were now all warring and killing each other trying to size power, He cast a Curse a curse on all things of the world, a curse that would break up the land and would turn the capital into a land where only [[The Undead]] and the newly created [[Curse Beasts]] existed. The Crown was lost in the [[The White City]] and it is said that one day someone will appear and claim The Crown becoming the new King...
+> *A summary taken from [[The gospel]] renewed 255 Old Rights version* 

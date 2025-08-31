@@ -1,0 +1,2 @@
+
+The [[Huminis]] were created to inhabit all the different lands of the world, adaptable and varied, each Huminis was created with the potential for greatness, they are not the sturdiest, not the strongest or biggest, but they will adapt and breakdown any obstacle that comes their way. When the [[The God King]] was created the Huminis were renamed into [[Humans]] to signify the beginning of a new [[Age]].
